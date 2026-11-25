@@ -1,1 +1,1 @@
-This project if mine prictise
+This project is mine prictise
